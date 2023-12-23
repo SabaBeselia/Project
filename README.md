@@ -1,2 +1,0 @@
-# Project
-IT STEP PROJECT 
